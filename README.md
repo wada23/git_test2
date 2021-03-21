@@ -1,1 +1,1 @@
-I need to try this one more time. Yes I do. 
+I need to try this one more time. Yes I do. So now I'm just gonna try this branche thing! Anyway I think the Git and GitHub and the Odin project and everything I am learning right now is SO  AWSOME! Thanks for your attention and be goodm bye
